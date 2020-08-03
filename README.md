@@ -9,4 +9,6 @@ Hello there,
 Sincerely,
 Pecroger
 
+Uploaded 1-10 on the 3rd of Aug 2020.
+
 ## Make love not war
